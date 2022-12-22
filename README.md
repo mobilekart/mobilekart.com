@@ -1,1 +1,0 @@
-# mobilekart.com
